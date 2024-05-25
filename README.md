@@ -2,7 +2,7 @@
 a novel in progress
 ## Jump into:
 [*) _Prologue-](https://github.com/rnr-roah/novel/blob/main/README.md#prologue) <br>
-[*) _Part1](https://github.com/rnr-roah/novel/blob/main/README.md#1-cloning-this-repository) <br>
+[*) _Part1](https://github.com/rnr-roah/novel/blob/main/README.md#part1) <br>
 ## Prologue
 Solitaire 
 she stood there beneath a desolate tree, 
@@ -20,6 +20,7 @@ she stares,
 "Thou art his world, and thou shalt have all thou dost desire, with the power to override aught that thine heart doth not admire. Be it men or women, guilty or innocent, as thou art the children of God, thou shalt be forgiven."
 
 she bids her final goodbye as she glosses her fingers over his purple lips, pressing the sharp edge of the glass against his chest, she gives it a final push.
+
 ## Part 1
 (Ray?) Him:                                                                                                  September 13th 2021.
 It was a winter morning when i saw her that day, her skin pale but her cheeks tinted rosy as she walked towards me with rushed breathing and raised heartbeat. I could tell because it was pretty obvious when she hugged me.
