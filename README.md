@@ -2,7 +2,7 @@
 a novel in progress
 ## Jump into:
 [*) _Prologue-](https://github.com/rnr-roah/novel/blob/main/README.md#prologue) <br>
-[*) _Part 1](https://github.com/rnr-roah/novel/blob/main/README.md#part1) <br>
+[*) _Part 1](https://github.com/rnr-roah/novel/blob/main/README.md#part-1) <br>
 ## Prologue
 Solitaire 
 she stood there beneath a desolate tree, 
