@@ -4,17 +4,16 @@ a novel in progress
 [*) _Prologue-](https://github.com/rnr-roah/novel/blob/main/README.md#prologue) <br>
 [*) _Part 1](https://github.com/rnr-roah/novel/blob/main/README.md#part-1) <br>
 ## Prologue
-Solitaire 
-she stood there beneath a desolate tree, 
-her white shirt drenched in splatters of blood. 
-her skin tinted rosy by the excitement rushing her heart
-as she peers through her first victim laying beside the
-drain with; sunken blood and his unsettling sunken smirk.
+Solitaire <br><br>
+she stood there beneath a desolate tree,<br> 
+her white shirt drenched in splatters of blood. <br>
+her skin tinted rosy by the excitement rushing her heart<br>
+as she peers through her first victim laying beside the<br>
+drain with; sunken blood and his unsettling sunken smirk.<br>
 her heart filled with emotions that exceeded every
-pleasure she ever experienced, be it sex or any holy deed.
-enamoured of this newly found tingly feeling flushing
-through her skin, she tightens her grip on the half rose tainted glass. 
-remembering and quoting lines from her favourite book
+pleasure she ever experienced,<br>be it sex or any holy deed.<br>
+enamoured of this newly found tingly feeling<br> flushing through her skin, she tightens her grip on the half rose tainted glass. <br>
+remembering and quoting lines from her favourite book<br>
 she stares, 
 
 "Thou art his world, and thou shalt have all thou dost desire, with the power to override aught that thine heart doth not admire. Be it men or women, guilty or innocent, as thou art the children of God, thou shalt be forgiven."
